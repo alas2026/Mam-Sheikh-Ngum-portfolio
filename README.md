@@ -23,7 +23,7 @@ The website is designed to establish a strong professional online presence and c
 ### Contact Information
 
 - **Email:** Mamsheikhngum974@gmail.com
-- **Phone:** +220 3039110 / +220 2244710
+- **Phone:** +220 833039110 / +220 872244710
 
 ## Professional Skills
 
